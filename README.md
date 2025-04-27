@@ -10,7 +10,7 @@
 
 » Earn Silver for our innovation called "Recall Kit" during HiKMJ 🥈
 
-» SPM : 8A 1B , CGPA : 4.00 
+» SPM : 8A 1B , PSPM : 4.00 
 
 
 
